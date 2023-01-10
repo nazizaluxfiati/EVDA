@@ -1,2 +1,2 @@
-# ProjectUAS---Data-Mining-Kelompok-5
+# ProjectUAS Nur Aziza Luxfiati
 Piala Dunia Qatar 2022
